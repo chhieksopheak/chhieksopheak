@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @chhieksopheak
+- 👀 I’m interested in researching new knowledge on social media.like.....how to earn money online,,,,?how to know about this about that,,,,?features of this of that ...
+- 🌱 I’m currently learning about how to earn money on YouTube and Facebook Ad break  and learning English online with Zoom class ....
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me 
+  real-life.
+  Best ideas 
+  How to make sure life successfully ...
+
+<!---
+chhieksopheak/chhieksopheak is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
